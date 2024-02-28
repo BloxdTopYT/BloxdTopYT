@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on anything
 - 📫 How to reach me jnhowell30@students.wfisd.net
 - 😄 Pronouns: he/them
-- ⚡ Fun fact: im a youtuber with over 170 subscribers
+- ⚡ Fun fact: im a youtuber with over 170 subscribers my channel- https://www.youtube.com/@BloxdSMPOFFICAL
 
 <!---
 BloxdTopYT/BloxdTopYT is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
